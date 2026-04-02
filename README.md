@@ -1,1 +1,0 @@
-# ecc3479-project
